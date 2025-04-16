@@ -195,5 +195,4 @@ FBUIFEUOFWEIOEFWIO
 MEOW INTENSIFIES!!!
 OIOEFHIFNIORFNIO
 VRNOARINRANIORN
-
-undilah pas utk ambil balik tanah melayu ;)
+ 
